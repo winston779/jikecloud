@@ -1,6 +1,6 @@
 # 极客云官网地址
 
-最新地址：[jk931.xyz](https://jikev44.xyz/auth/register?code=fsZc)
+最新地址：[jk931.xyz](https://jike7.net/auth/register?code=fsZc)
 
 ## 简介
 
@@ -8,9 +8,9 @@
 
 ## 极客云优惠码
 
-特惠包年7折优惠代码：K5656 
+特惠包年7折优惠代码：JK123 
 
-结束时间2024.8.28
+结束时间2024.9.28
 
 ## 特色
 
