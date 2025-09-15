@@ -1,6 +1,6 @@
 # 极客云官网地址
 
-最新地址：[jk931.xyz](https://jike77.net/auth/register?code=fsZc)
+最新地址：[jk931.xyz](https://jikefind.net/auth/register?code=fsZc)
 
 ## 简介
 
